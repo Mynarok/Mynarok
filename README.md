@@ -1,4 +1,4 @@
-I'm @Mynarok, and I'm a hobbyist. I like to work on furry gaem. I apologize for my chaotic work.
+I like the woods. Brain don't work too good. Pregnant programmer.
 
 <!---
 Mynarok/Mynarok is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
